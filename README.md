@@ -1,5 +1,5 @@
 - 👋 Hi, I’m luuamaz
-- 👀 I’m interested in 
+- 👀 I’m interested in sport 
 - 🌱 I’m currently learning cs in Uet
 - 📫 How to reach me :luuamazing@gmail.com
 - ⚡ Fun fact:nothing here !!!
