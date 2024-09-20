@@ -1,4 +1,4 @@
-- 👋 Hi, I’m luuamaz
+- 👋 Hi, I’m luu
 - 👀 I’m interested in sport 
 - 🌱 I’m currently learning cs in Uet
 - 📫 How to reach me :luuamazing@gmail.com
